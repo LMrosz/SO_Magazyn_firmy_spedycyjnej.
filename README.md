@@ -1,0 +1,1 @@
+# SO_Magazyn_firmy_spedycyjnej.
